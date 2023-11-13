@@ -1,3 +1,6 @@
+> [!IMPORTANT]
+> This company is inactive for developing for the time being
+
 # Luna Services AS ✨
 
 Welcome to Luna Services AS – Where Innovation Meets Excellence!
