@@ -1,5 +1,5 @@
 > [!IMPORTANT]
-> This company is inactive for developing for the time being
+> Luna Services AS is temporarily on hold for active development. We appreciate your interest and look forward to future engagements as we gear up for exciting projects. Stay tuned for updates!
 
 # Luna Services AS ✨
 
