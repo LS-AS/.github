@@ -1,2 +1,0 @@
-# .github
-Luna Services AS
